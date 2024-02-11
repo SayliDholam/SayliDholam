@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I am Sayli Rajendra Dholam. 
 🔭 I’m currently working on developing small projects <br>🌱 I’m currently learning Python, SQL, R, PowerBI<br>👯 I’m looking to collaborate on ...<br>🤔 I’m looking for help with DSA <br>⚡ Fun fact: Avid reader, loves nature and selenophile <br><br>
 
 
