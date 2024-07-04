@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **sayli.dholam.official@gmail.com**
 
-- ⚡ Fun fact **Avid reader, loves nature and selenophile**
+- ⚡ Fun fact **Avid reader, loves nature and a selenophile**
   
  </br>
 
