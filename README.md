@@ -8,9 +8,7 @@
 
 - 📫 How to reach me **sayli.dholam.official@gmail.com**
 
-- ⚡ Fun fact **Avid reader, loves nature and a selenophile**
-- Anthophile - remove reader and loves nature and add this ----> a commit for 11th only..make it 2 ccommits and done
-- sql commits from 12th july
+- ⚡ Fun fact **An Anthophile and a Selenophile**
   
  </br>
 
